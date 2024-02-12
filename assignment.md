@@ -1,7 +1,6 @@
 # I GOT YOU
 [I GOT YOU](https://genius.com/Twice-i-got-you-lyrics)
 , <ins>Twice</ins> 
- <u>text</u>
 
 ![alt text](https://www.billboard.com/wp-content/uploads/2024/02/TWICE-2024-cr-JYP-Entertainment-press-billboard-1548.jpg?w=942&h=623&crop=1)
 * *[Verse 1: Mina, Jeongyeon]*
